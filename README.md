@@ -9,5 +9,5 @@
 使用telegram时需使用蚂蚁加速器
 
 # 官方永久地址
-最新下载地址：https://vip.lusir029.com/<br/>
+最新下载地址：https://vip.lusir002.com/<br/>
 （如果官网地址被封，在此可以找到最新可用网址）
