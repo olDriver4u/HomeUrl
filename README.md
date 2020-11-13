@@ -1,16 +1,19 @@
-# 嗨浪回家的路
-最新下载地址：https://hl.lusirpro.com/<br/>
-（如果官网地址被封，在此可以找到最新可用网址）
+# 商务合作
+-如果你需要流量资源，想要投放广告<br/>
+-如果你有流量资源，想要做渠道推广或者出租广告位<br/>
+-如果你是支付渠道，通道稳定想找合作伙伴<br/>
+-如果你是MCN机构，想要上架自己的作品或者承接作品订制<br/>
+-以及你认为可以合作的一切资源<br/>
+请来联系我们，诚邀合作互利共赢
 
-# 老司机良心推荐
-各类你懂的app集合：http://a.seyu88.tv/<br/>
+# 联系方式
+Email: leerock7777777@gmail.com<br/>
+telegram(需翻墙): https://t.me/dddddddman 或 https://t.me/hello_dududu3<br/>
+potato(免翻墙): https://lynnconway.me/dingman<br/>
+翻墙软件推荐： https://aff.lanshuapi.com<br/>
 
-# 官方群加入方式
-先下载安装蚂蚁加速器: https://my.seseshow.com<br/>
-然后任选一条国外线路连接上之后，下载telegram<br/>
-苹果下载：https://apps.apple.com/us/app/telegram-messenger/id686449807<br/>
-安卓下载：https://telegram.cn.uptodown.com/android<br/>
-安装telegram成功后，访问：https://t.me/LuSirPro 即可成功入群<br/>
-使用telegram时需使用蚂蚁加速器
+# 部分产品展示
+御花园：http://a.seyu88.tv/<br/>
+
 
 
